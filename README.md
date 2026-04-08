@@ -1,6 +1,7 @@
 
 ![uXkSQp6](https://i.imgur.com/Dq0kZQs.png)
 von. he/him. number 2 sparkvamp poster/enjoyer. 
+![for-the-badge](https://komarev.com/ghpvc/?username=your-github-sparklevamp)
 
 i love vampire cookie. look at my ita bag .
 ![uXkSQp6](https://i.imgur.com/BM1MJ0b.jpeg)
