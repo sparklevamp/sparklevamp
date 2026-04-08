@@ -3,5 +3,5 @@
 von. he/him. number 2 sparkvamp poster/enjoyer. 
 
 i love vampire cookie. look at my ita bag .
-![uXkSQp6](https://i.imgur.com/dFVzJZe.png)
-design as of 3/8/26
+![uXkSQp6](https://i.imgur.com/BM1MJ0b.jpeg)
+design as of 4/8/2026
